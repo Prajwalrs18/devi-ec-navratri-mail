@@ -1,0 +1,1 @@
+# devi-ec-navratri-mail
